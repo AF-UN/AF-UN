@@ -1,3 +1,5 @@
 # AF-UN
 If you know you know
 welcome to AF-UN github
+invite only
+NOTICE: IF YOU ARE GOING TO USE ANY PROGRAMS PUBLICLY BE SURE TO USE THE COPYRIGHT PLS AND THANK YOU
